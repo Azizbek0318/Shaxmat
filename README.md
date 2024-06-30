@@ -1,1 +1,1 @@
-# Shaxmat
+# Shaxmat doskasi.
